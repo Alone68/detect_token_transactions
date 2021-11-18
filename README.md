@@ -1,3 +1,5 @@
+Please add me as an Agent Developer [Published] on Discord, my discord username is alone67#8549
+
 # Contract Transactions Agent
 
 ## Description
